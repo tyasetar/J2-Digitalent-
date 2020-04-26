@@ -1,1 +1,1 @@
-# J2-Digitalent-
+# J2-Digitalent
